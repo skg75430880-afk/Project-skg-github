@@ -1,1 +1,1 @@
-Author by suruti kumari
+Author-suruti kumari
